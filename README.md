@@ -1,4 +1,4 @@
-- 👋 Hi, I am cryptohero92
+- 👋 Hi, I am Miyashita Koki, known as cryptohero92 in Blockchain world.
 - 👀 I had participated in various Blockchain projects including Shiba Inu Coin Development.
 - 💞️ I’m looking for opportunities to use my skill and ability.
 - 📫 Contact info: alwaysflexibleman@gmail.com
