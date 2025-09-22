@@ -1,5 +1,5 @@
-- 👋 Hi, I am cryptohero92 in Blockchain world.
-- 👀 I had participated in various Blockchain projects including Shiba Inu Coin Development.
+- 👋 Hi, I am cryptohero92 in Blockchain & AI world.
+- 👀 I had participated in various Blockchain & AI dev projects including Shiba Inu Coin, Polymarket, Toxina.
 - 💞️ I’m looking for opportunities to use my skill and ability.
 - 📫 Contact info: alwaysflexibleman@hotmail.com
 
